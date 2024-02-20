@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TrickAndJOKR
+- 👀 I’m interested in computers!
+- 🌱 I’m currently learning programming!
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me: N/A
+- 😄 Pronouns: Idc
+- ⚡ Fun fact: Im not special
